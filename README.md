@@ -21,3 +21,4 @@ MY AMY KIN!!! SONIC KIN IS COOLER! LOVELY ART BY HIM OK !!! 😋😋
 MORE KIN ARTS BY ME!
 <img width="1471" height="2059" alt="Image" src="https://github.com/user-attachments/assets/b3a24bae-b347-436c-a6b4-b4dd265913d6" />
 <img width="2215" height="1743" alt="Image" src="https://github.com/user-attachments/assets/dde1ea77-464f-435f-9224-2c33a2c7edb3" />
+MORE COMING SOON IG
