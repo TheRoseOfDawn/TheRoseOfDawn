@@ -2,7 +2,8 @@ HI!!! (๑•̀ㅂ•́)و✧
 
 ----------------------------------
 MORE IN MY STRAWPAGE<3
-https://amyrosecupcake.straw.page
+
+<a href="https://amyrosecupcake.straw.page."></i>straw</i></a>
 
 -----------------------------------
 ANYWAY!!!! 
