@@ -1,10 +1,12 @@
-HI I JUST WANNA SAY I LOVEEEEEEEEEE SONAMY 🥺🥺🥺🥺🥺
-<img width="1280" height="781" alt="Image" src="https://github.com/user-attachments/assets/919c8359-5a63-41c8-9332-8a0d7a7c3db0" />
+HI!!! (๑•̀ㅂ•́)و✧
+
+----------------------------------
+MORE IN MY STRAWPAGE<3
+https://amyrosecupcake.straw.page
+
+-----------------------------------
 ANYWAY!!!! 
 Idm other ships too as long as it not weird!!
-
-Erm erm... TV Girl your Sonamy 💝
-<img width="1736" height="1847" alt="Image" src="https://github.com/user-attachments/assets/f0ec285a-abd2-4167-bf92-a8dd035c752e" />
 
 -----------------------------------
 ANYWAYYY THIS IS MY OC HARU!!!! Haru is a chud 
@@ -17,8 +19,3 @@ AMAZING FANART BY NEBU!!!!
 -----------------------------------
 MY AMY KIN!!! SONIC KIN IS COOLER! LOVELY ART BY HIM OK !!! 😋😋
 <img width="735" height="451" alt="Image" src="https://github.com/user-attachments/assets/1e409836-2606-411b-8cc4-0c3c573112a4" />
-
-MORE KIN ARTS BY ME!
-<img width="1471" height="2059" alt="Image" src="https://github.com/user-attachments/assets/b3a24bae-b347-436c-a6b4-b4dd265913d6" />
-<img width="2215" height="1743" alt="Image" src="https://github.com/user-attachments/assets/dde1ea77-464f-435f-9224-2c33a2c7edb3" />
-MORE COMING SOON IG
