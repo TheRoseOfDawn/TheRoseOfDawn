@@ -3,7 +3,7 @@ HI!!! (๑•̀ㅂ•́)و✧
 ----------------------------------
 MORE IN MY STRAWPAGE<3
 
-<a href="https://amyrosecupcake.straw.page."></i>straw</i></a>
+<a href="https://amyrosecupcake.straw.page"></i>straw</i></a>
 
 -----------------------------------
 ANYWAY!!!! 
