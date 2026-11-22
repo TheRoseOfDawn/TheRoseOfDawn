@@ -2,13 +2,23 @@ HI!!! (๑•̀ㅂ•́)و✧
 Wip. Updating more soon
 
 ----------------------------------
-MORE IN MY STRAWPAGE<3
+STRAWPAGE<3
 
 <a href="https://amyrosecupcake.straw.page"></i>straw</i></a>
 
 -----------------------------------
-
-
+Some notes about me before yall interact!!
+.
+I'm chill most of the time
+.
+I'm fine with most interaction, just don't be weird!!
+.
+I afk a lot. By that I mean 24/7. So you can try whispering (for pt) or dms (for discord or others) if you wanna talk to me, i'll try to be active TT
+.
+I love all my friends, and very protective of them 
+.
+I don't like being involved in dramas by any mean. Unless it's somehow about me or my close friends.
+.
 -----------------------------------
 ANYWAYYY THIS IS MY OC HARU!!!! Haru is a chud 
 <img width="1439" height="2148" alt="Image" src="https://github.com/user-attachments/assets/6ef8e370-ab5f-4ebf-9ffd-86688644710a" />
