@@ -1,4 +1,5 @@
 HI!!! (๑•̀ㅂ•́)و✧
+Wip. Updating more soon
 
 ----------------------------------
 MORE IN MY STRAWPAGE<3
@@ -6,8 +7,7 @@ MORE IN MY STRAWPAGE<3
 <a href="https://amyrosecupcake.straw.page"></i>straw</i></a>
 
 -----------------------------------
-ANYWAY!!!! I LOVE SONAMY
-Idm other ships too as long as it not weird!!
+
 
 -----------------------------------
 ANYWAYYY THIS IS MY OC HARU!!!! Haru is a chud 
