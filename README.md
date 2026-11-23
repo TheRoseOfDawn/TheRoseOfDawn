@@ -19,6 +19,8 @@ I love all my friends, and very protective of them
 
 I don't like being involved in dramas by any mean. Unless it's somehow about me or my close friends.
 
+HEAVY DNI -> People who copy/ dramatic
+
 -----------------------------------
 ANYWAYYY THIS IS MY OC HARU!!!! Haru is a chud 
 <img width="1439" height="2148" alt="Image" src="https://github.com/user-attachments/assets/6ef8e370-ab5f-4ebf-9ffd-86688644710a" />
